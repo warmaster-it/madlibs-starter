@@ -1,0 +1,10 @@
+Nightfall
+Love
+Seduction
+Crimson
+Vow
+Kiss
+Coffin
+Thirst
+Immortality
+Seduction
